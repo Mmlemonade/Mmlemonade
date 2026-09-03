@@ -2,7 +2,7 @@
 𓆩✦𓆪
 <br>
 <br>
- <img width="40%" src="https://i.imgur.com/mqtbOQn.png">
+ <img width="40%" src="https://i.imgur.com/EVtL2oP.jpeg">
 <br>
 <br>
 chronic pain + poor sleep, I'm dying at times so energy levels vary a lot
