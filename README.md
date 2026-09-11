@@ -1,9 +1,9 @@
 <div align="center">
 𓆩♱𓆪
 <br>
-࣪˖ ⊹ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ㅤㅤㅤ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌  ⊹ ࣪ ˖
+࣪˖ ⊹ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ㅤㅤㅤ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌  ⊹ ࣪ ˖
 <br>
- <img width="50%" src="https://pbs.twimg.com/media/GICsfkFaQAAvMj6?format=jpg&name=large">
+ <img width="40%" src="https://pbs.twimg.com/media/HEudSN4awAAxt0k?format=jpg&name=4096x4096">
 <br>
 
 ✃𓄧꒷꒦ㅤ tired guy ㅤ| ㅤinfo ▾
